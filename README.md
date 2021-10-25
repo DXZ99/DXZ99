@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Just check my LinkedIn profile and you can find my resume there, Thanks!
+https://www.linkedin.com/in/dongxiaozhao/
