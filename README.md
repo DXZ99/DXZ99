@@ -15,5 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Just check my LinkedIn profile here, Thanks!
-https://www.linkedin.com/in/dongxiaozhao/
+Hi this is Dongxiao👋
